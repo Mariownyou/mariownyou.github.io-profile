@@ -1,1 +1,1 @@
-# mariownyouprofile.github.io
+# mariownyou.github.io/profile
